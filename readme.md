@@ -5,6 +5,7 @@
 
 ## 🔗 Connect & Collaborate
 [**LinkedIn** ](https://www.linkedin.com/in/valentin-tilneac-b32756257/)
+---
 **"Turning curiosity into code, one project at a time"**
 
 ---
